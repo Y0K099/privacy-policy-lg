@@ -80,8 +80,7 @@ Nous pouvons mettre à jour cette politique. Les modifications importantes vous 
 
 Pour toute question concernant cette politique de confidentialité :
 
-**Email :** jules111@me.com  
-**Développeur :** Jules GUERIN
+**Email :** support@wolvesandwhispers.app
 
 ---
 
