@@ -57,7 +57,7 @@ Vous avez le droit de :
 - **Supprimer** votre compte et vos données
 - **Exporter** vos données de jeu
 
-Pour exercer ces droits, contactez-nous à : jules111@me.com
+Pour exercer ces droits, contactez-nous à : support@wolvesandwhispers.app
 
 ## 7. Conservation des données
 
