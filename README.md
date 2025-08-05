@@ -1,6 +1,6 @@
 # Politique de Confidentialité - LG - Extended
 
-**Dernière mise à jour :** 11 juin 2025
+**Dernière mise à jour :** 5 aout 2025
 
 ## 1. Introduction
 
